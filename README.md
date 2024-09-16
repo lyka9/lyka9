@@ -1,3 +1,7 @@
 ![image](https://64.media.tumblr.com/cb98fc1b40b9ed989c53868dac7b2514/0aead43fba84c6fd-7d/s1280x1920/010e4cb81014c4f59da97a73595ad170ea2807f1.pnj)
 ![image](https://64.media.tumblr.com/999fe157f4e7051486e56a7e32c68fd7/0aead43fba84c6fd-0c/s1280x1920/3deee41003cfb33da6e99cc5b54e60da0873ba75.pnj)
+{25px:25px} %#DFB18C%༢ུ࿓%%⠀⠀⠀%#B28A66%[!~#00000;dotted;Castiel.~!](archangel)%%⠀
+![](https://files.catbox.moe/ot38z6.png){160px:40px} ⠀%#DFB18C%ᴏʀ%%⠀%#DFB18C%『%% ⠀%#B28A66%Cas%% ⠀%#DFB18C%』%%⠀%#B28A66%...%%
+![](https://files.catbox.moe/l9pdfy.png){160px:40px} ⠀%#B28A66%!~#d9bca730;line-through;7;He⠀/⠀She~!⠀⠀୨⠀![](https://files.catbox.moe/asckth.webp)%%
+![](https://files.catbox.moe/xoyxc6.png){160px:40px}%#DFB18C%Chamorro ![](https://files.catbox.moe/6vecb3.webp) !~#00000;dotted;Haitian~!%%
 ![image](https://64.media.tumblr.com/01a034afb663ec192d8385c117cab4f8/0aead43fba84c6fd-84/s1280x1920/a1f2e7839c1c2c5089b4c09302de0a8f81774782.pnj)
