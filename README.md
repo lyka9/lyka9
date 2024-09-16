@@ -1,2 +1,3 @@
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ![image](https://64.media.tumblr.com/ca201a32ccd707810cea187cfb415f8e/f2d8f79923d47eb0-bf/s2048x3072/12b29c2e96442617a972eb5ad99ddc7c5f973c8a.pnj)
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ![fyodorhouse on tumblr](https://64.media.tumblr.com/f2e3abdff50f85149925ddae62255ed4/b9dd6f9330c4a16f-30/s250x400/4f46987ed4a24ac93103554b24922dddc451dff9.gifv)
+![image](https://64.media.tumblr.com/cb98fc1b40b9ed989c53868dac7b2514/0aead43fba84c6fd-7d/s1280x1920/010e4cb81014c4f59da97a73595ad170ea2807f1.pnj)
+![image](https://64.media.tumblr.com/999fe157f4e7051486e56a7e32c68fd7/0aead43fba84c6fd-0c/s1280x1920/3deee41003cfb33da6e99cc5b54e60da0873ba75)
+![image](https://64.media.tumblr.com/01a034afb663ec192d8385c117cab4f8/0aead43fba84c6fd-84/s1280x1920/a1f2e7839c1c2c5089b4c09302de0a8f81774782.pnj)
